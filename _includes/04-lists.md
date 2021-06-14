@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* RWBY
+* Exalted
+* Drawing
+* RPing with friends
+* Chocolate
